@@ -79,7 +79,7 @@ That's what on our, programmer's, mind. Maybe, a whole universe. Unnaturally sha
 
 ## Software
 
-![Software](/images/software/jpg)
+![Software](/images/software.jpg)
 
 2012-11-18 Oil on Canvas, 10.6x19.7 in (27x50 cm)
 
